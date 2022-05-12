@@ -1,4 +1,4 @@
-Hi 👋 My name is AKASH PRAJAPATI
+Hi 👋 My Name is AKASH PRAJAPATI
 ================================
 
 Web Developer
